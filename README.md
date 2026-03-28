@@ -1,1 +1,1 @@
-# ishnavi123.github.io
+# SmartDiveAI.github.io
